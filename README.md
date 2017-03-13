@@ -1,0 +1,1 @@
+Bizim komanda üçün
